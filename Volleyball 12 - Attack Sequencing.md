@@ -35,20 +35,20 @@ Watching good players and coaches explain these ideas can really help. Here are 
 1. **Why Use Three Hits? (Explains the Strategy)**
     
     - **Video:** "Sequence of hits in Volleyball" by user Volleyball Explained 1
-    - **Link:**(https://www.youtube.com/watch?v=G9X2G2lJKSU)
+    - **Link:** [here](https://www.youtube.com/watch?v=G9X2G2lJKSU)
     - _Why Watch:_ This short video clearly explains the pass-set-hit sequence and directly answers why hitting it over on the first or second touch gives the advantage to the other team. Simple and to the point.
 2. **Setter Technique Fundamentals**
     
     - **Video:** "Volleyball Setting Technique | Tutorial for Beginners" by user Coach Ay
-    - **Link:** [https://www.youtube.com/watch?v=VH0LiQH5D5U](https://www.youtube.com/watch?v=VH0LiQH5D5U)
+    - **Link:** [here](https://www.youtube.com/watch?v=VH0LiQH5D5U)
     - _Why Watch:_ Focuses on the basics of hand shape, contact, and footwork for setters. Clear visuals and explanations suitable for learning fundamental technique. Positive comments suggest it's helpful.
 3. **Setter Drills You Can Do Anywhere**
     
     - **Video:** "Simple Volleyball Setting Drills You Can Do At Home" by user Kendra White
-    - **Link:**(https://www.youtube.com/watch?v=cgORSUi50Jg)
+    - **Link:** [here](https://www.youtube.com/watch?v=cgORSUi50Jg)
     - _Why Watch:_ Shows basic wall drills for setters to practice hand control and consistency, reinforcing the setter's role in controlling the second touch. Practical and easy to follow.
 4. **Basic Hitting Approach Footwork**
     
     - **Video:** "How To Attack A Volleyball | Part 1: The Approach" by user Koko Volley
-    - **Link:** [https://www.youtube.com/watch?v=hzOzVihhyis](https://www.youtube.com/watch?v=hzOzVihhyis)
+    - **Link:** [here](https://www.youtube.com/watch?v=hzOzVihhyis)
     - _Why Watch:_ Breaks down the footwork 2 needed for a hitter to jump effectively and meet the set. Fundamental for the third touch. Seems clear and focused on basics.
