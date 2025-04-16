@@ -52,7 +52,7 @@ The most important part is that _everyone_ knows the routine and buys into it. I
 Want to learn more about how focus, teamwork, and timeouts work in volleyball? Check out these videos – they offer great explanations and examples:
 
 1. **Mental Focus for Athletes:**
-    - _Link:_([https://m.youtube.com/watch?v=GRxjyUON_ZU](https://m.youtube.com/watch?v=GRxjyUON_ZU))
+    - _Link:_[https://m.youtube.com/watch?v=GRxjyUON_ZU](https://m.youtube.com/watch?v=GRxjyUON_ZU)
     - _Description:_ This video explains why focusing on the _process_ (what you can control right now) is better than worrying about the score. Great tips for staying focused during games!
 2. **Volleyball Communication & Teamwork Drills:**
     - _Link:_ [https://www.youtube.com/watch?v=Mjgi8ue56ac](https://www.youtube.com/watch?v=Mjgi8ue56ac)
@@ -61,8 +61,8 @@ Want to learn more about how focus, teamwork, and timeouts work in volleyball? C
     - _Link:_ [https://www.youtube.com/watch?v=Jeu-F_z_LG8](https://www.youtube.com/watch?v=Jeu-F_z_LG8)
     - _Description:_ Hear from top players about making communication specific and meaningful, especially during breaks like timeouts, instead of just saying "next ball."
 4. **Understanding Timeout Strategy:**
-    - _Link:_(([https://www.youtube.com/watch?v=B1-oBJ6XRA0](https://www.youtube.com/watch?v=B1-oBJ6XRA0)))
+    - _Link:_[https://www.youtube.com/watch?v=B1-oBJ6XRA0](https://www.youtube.com/watch?v=B1-oBJ6XRA0)
     - _Description:_ Listen in on a real timeout conversation to see how teams talk about strategy and adjustments during the game.
 5. **Youth Sports Psychology Basics:**
-    - _Link:_(([https://m.youtube.com/watch?v=ge-2Rx6BL2k](https://m.youtube.com/watch?v=ge-2Rx6BL2k)))
+    - _Link:_[https://m.youtube.com/watch?v=ge-2Rx6BL2k](https://m.youtube.com/watch?v=ge-2Rx6BL2k)
     - _Description:_ Learn simple ways young athletes can start building mental skills like focus, confidence, and handling mistakes.
