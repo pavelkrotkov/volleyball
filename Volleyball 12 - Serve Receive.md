@@ -119,19 +119,19 @@ Mastering serve receive requires thousands of quality repetitions in realistic s
 Watching high-level players and clear instructional videos can help visualize and understand proper technique. Here are a few YouTube links that offer serious coverage and detailed explanations suitable for competitive junior players looking to improve their serve receive:
 
 1. **The Art of Coaching Volleyball: Serve Receive Passing Angles**
-    - Link: `https://www.youtube.com/watch?v=-pm4tTjf40Y`
+    - Link: (https://www.youtube.com/watch?v=-pm4tTjf40Y)
     - Description: Coach Jim Stone discusses and demonstrates the importance of practicing different passing angles (right-to-left, left-to-right) and using drop steps, emphasizing platform control over arm swinging. Good focus on angling, relevant to Step 4.
 2. **Elevate Yourself: Volleyball Serve Receive Masterclass**
-    - Link: `https://www.youtube.com/watch?v=MUwYZirKgsg`
+    - Link: (https://www.youtube.com/watch?v=MUwYZirKgsg)
     - Description: Breaks down the ready position (comparing serve receive vs. defense), platform creation, ideal contact point, and emphasizes midline passing when possible. Clear demonstrations.
 3. **USA Volleyball: Don't Take the Ball Midline**
-    - Link: `https://www.youtube.com/watch?v=bfTHCpFNpvY`
+    - Link: (https://www.youtube.com/watch?v=bfTHCpFNpvY)
     - Description: Features coaching insights (potentially Karch Kiraly) explaining why forcing midline passes isn't always ideal against good serves and the importance of learning to pass effectively from outside the body. Challenges traditional thinking, relevant for competitive players (Step 4).
 4. **Gold Medal Squared: Serve Receive Footwork - Move Your Feet**
-    - Link: `https://www.youtube.com/watch?v=ncNw3tF2lBY`
+    - Link: (https://www.youtube.com/watch?v=ncNw3tF2lBY)
     - Description: Focuses specifically on footwork patterns for moving forward, backward, and laterally while maintaining balance. Explains the "gallop" step and staying stable. Directly addresses Step 3.
 5. **The Art of Coaching Volleyball: 5-1 Serve Receive Rotations Explained**
-    - Link: `https://www.youtube.com/watch?v=gHE5pun0kqg`
+    - Link: (https://www.youtube.com/watch?v=gHE5pun0kqg)
     - Description: Clearly explains and diagrams the six serve receive rotations for a 5-1 offense, showing player starting positions and how the setter gets to the net while respecting overlap rules. Helpful for understanding Step 5 (Teamwork/Formations).
 
 _Disclaimer: Video availability and content may change over time. Evaluate videos for relevance and quality before extensive viewing._
